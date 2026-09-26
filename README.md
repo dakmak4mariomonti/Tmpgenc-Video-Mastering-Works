@@ -218,4 +218,4 @@ TMPGEnc Video Mastering Works is the full free version with all features and upd
 Unlock your video editing potential today with TMPGEnc Video Mastering Works — download now for a complete and safe experience!
 
 ---
-**Last updated:** 2026-09-25 23:43:02 UTC
+**Last updated:** 2026-09-26 02:43:42 UTC
